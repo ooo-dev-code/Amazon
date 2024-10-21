@@ -1,1 +1,1 @@
-# Amazon |||| I am French so this site is French
+# Amazon ----- I am French so this site is French
